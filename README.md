@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/6800bdcd-a978-4ebd-889e-ac249b33e8c6)
 - 👋 Hi, I’m @JuanisN
 - 👀 I’m interested in  recursos de  divesrsas materias de ingenieria industrial..
   
